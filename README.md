@@ -1,1 +1,0 @@
-# taka-d.github.io
